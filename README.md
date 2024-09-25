@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+`영남대학교` 박사학위
+
+
+## 프로젝트
+---
+가나다라
