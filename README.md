@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 
 
-`영남대학교` 박사학위
+`영남대학교` '통계학과' 재학 중
 
 
 ## 프로젝트
